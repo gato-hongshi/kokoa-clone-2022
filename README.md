@@ -1,3 +1,3 @@
 #i don't know what to say
 
-- umm, should i get to bed early today?
+-bty, i have to brush my teeth firstㅠㅠ
