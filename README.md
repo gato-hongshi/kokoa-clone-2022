@@ -1,3 +1,3 @@
-# i don't know what to say
+# Kokoa clone 2022 update
 
--bty, i have to brush my teeth first !!
+css got musch better!
