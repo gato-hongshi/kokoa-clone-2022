@@ -1,3 +1,3 @@
 # Kokoa clone 2022 update
 
-css got musch better!
+i dont know what to say,,
